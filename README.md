@@ -22,5 +22,5 @@
 
 📫 How to reach me:
 📧 saivenkatesh.tech@gmail.com  
-🌍 Chennai,India
+🌍 Chennai,Tamilnadu,India
 
